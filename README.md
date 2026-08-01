@@ -1,2 +1,2 @@
 # Midterm
-รวมงานMidtermของฉัน
+รวมงานMidtermของ ปาณิชา 
